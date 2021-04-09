@@ -6,4 +6,4 @@ It's also a place where you discover other makers like you. Get feedback or let 
 It's where you get inspired and motivated.  
 It's where you learn and grow.  
 
-👉[https://make.rs](https://make.rs)
+👉 [https://make.rs](https://make.rs)
